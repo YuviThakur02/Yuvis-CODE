@@ -1,2 +1,0 @@
-# Yuvis-CODE
-Just Practicing :)
